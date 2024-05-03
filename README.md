@@ -1,5 +1,5 @@
 # *GIOVANNA MENDES PIRES*
-Atualmente estou cursando Engenharia de produção estou no 8° perído. Adoro a capacidade de otimizar processos e melhorar a eficiência em diversos setores. A constante evolução tecnológica me motiva a aprender e aplicar novas soluções para problemas complexos. Para mim, é mais do que uma carreira, é uma forma de ver o mundo e criar um impacto positivo.
+Atualmente estou cursando Engenharia de produção, estou no 8° perído. Adoro a capacidade de otimizar processos e melhorar a eficiência em diversos setores. A constante evolução tecnológica me motiva a aprender e aplicar novas soluções para problemas complexos. Para mim, é mais do que uma carreira, é uma forma de ver o mundo e criar um impacto positivo.
 
 [![Linkedin](https://media.licdn.com/dms/image/C560BAQHaVYd13rRz3A/company-logo_100_100/0/1638831590218/linkedin_logo?e=2147483647&v=beta&t=wQTMb6WSKjpi2vWVLKyWcrO7wtW-3uoVDhQ7ka58vhA)](https://www.linkedin.com/in/giovanna-mendes-576460179?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
