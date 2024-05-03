@@ -27,6 +27,3 @@ Bachelor of Engineering - BE Engenharia de Produção
 Inglês fluente
 
 2011 - 2019
-
-## Portifólio
-<img src="https://img.shields.io/badge/Made%20with-Jupyter-orange?style=for-the-badge&logo=Jupyter">
