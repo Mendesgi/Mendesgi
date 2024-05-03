@@ -1,13 +1,16 @@
 # *GIOVANNA MENDES PIRES*
-[![Linkedin](https://cdn-icons-png.flaticon.com/256/174/174857.png)](https://br.linkedin.com/in/giovanna-mendes-576460179?trk=people-guest_people_search-card)
+[![Linkedin](https://cdn-icons-png.flaticon.com/256/174/174857.png)](https://www.linkedin.com/in/giovanna-mendes-576460179?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ## Experiência
-- Estagiário de Engenharia de Processos
-  - Homologação de produto
-  - Suporte para a fábrica (Resolução de não conformidades, ajuste em componentes e desenhos técnicos, alteração e correção de estrutura, etc)
-  - Desenvolvimento e aplicação de treinamentos
-  - Mapeamento de processos produtivos
-  - Projetos de 5S por meio de desenhos e fabricação em chapas metálicas e Impressão 3D
-  - Atuação na melhoria contínua de processos e projetos
-  - Atuação na administração, análise e validações de alteração de RNC's
-  - Análises de oportunidade e atuação em DFMA
+<img src="https://media.licdn.com/dms/image/C510BAQE59VTmdycTVw/company-logo_100_100/0/1631315414283?e=2147483647&v=beta&t=pjMQ-VL0gfpmiyDAIrFmcE-bWl_FiSrgCS2v2pnUARw"> 
+
+- Estagiária de Engenharia de Processo 
+  - Grupo Lumicenter Lighting
+  - jun. de 2022 - o momento 1 ano 11 meses
+
+## Formação acadêmica
+<img src="https://media.licdn.com/dms/image/C4E0BAQHkdEayqw3jOw/company-logo_100_100/0/1631324757793?e=2147483647&v=beta&t=8MEL-7komf7mJ45xyNdFssiFge-0Mu6Br4P5NqxQZ9U">
+
+- Faculdade de Tecnologia de Curitiba
+  - Bachelor of Engineering - BE Engenharia de Produção
+  - 2020 - 2025
